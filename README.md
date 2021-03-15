@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YeetTheFirst21
+- 👀 I’m interested in everything that has electronics and mechanics included
+- 🌱 I’m currently learning life
+- 💞️ I’m looking to collaborate on welp, anything I can understand and enjoy!
+- 📫 How to reach me (not sure yet)
