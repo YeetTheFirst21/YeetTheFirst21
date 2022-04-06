@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning life
 - 💞️ I’m looking to collaborate on welp, anything I can understand and enjoy!
 - 📫 How to reach me https://www.linkedin.com/in/yigitilkk
-- 🌱 Freshman at Bilkent University Computer Engineering
+- 🌱 Currently a freshman at Bilkent University Computer Engineering, but hopefully not for long
